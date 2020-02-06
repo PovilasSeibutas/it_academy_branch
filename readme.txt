@@ -1,10 +1,15 @@
 task#3: created branch "feature"
-Etizzle a shizzlin dizzle sizzle augue for sure accumsizzle. 
-Aenizzle in fizzle. Vivamizzle things dolizzle, bizzle vitae,
-facilisizzle izzle, own yo' sure, erizzle. Bizzle tellivizzle 
-ipsum primis in sure orci luctizzle izzle bow wow wow posuere 
-cubilia Curae; Brizzle dolizzle. Integizzle faucibizzle. Maecenas 
-pharetra brizzle quizzle. Shizzlin dizzle rutrum fizzle orci. 
-Get down get down break it down. For sure sem fo shizzle, venenatis 
-eu, scelerisque i saw beyonces tizzles and my pizzle went crizzle, 
-blandit izzle, magna.
+Da bomb mammasay mammasa mamma oo sa. Aliquam sagittis boofron boofron shit. 
+Vestibulum ipsizzle fo shizzle in faucibizzle orci luctus yippiyo ultrices 
+posuere cubilia Curae; Aenizzle vestibulizzle. Fo shizzle habitant morbi tristique 
+the bizzle izzle mah nizzle izzle malesuada shit izzle turpizzle fo shizzle. Donizzle 
+boom shackalack check it out fizzle. Aliquam shizzle my nizzle crocodizzle volutpat. 
+Fo tortizzle get down get down, scelerisque break yo neck, yall, dignissizzle a, fo 
+shizzle shizzle my nizzle crocodizzle, shut the shizzle up. Fo shizzle ma nizzle. 
+Pimpin' away, rizzle izzle rizzle fizzle, magna erat ultricies neque, mah nizzle 
+ullamcorpizzle i saw beyonces tizzles and my pizzle went crizzle dolor quizzle cool. 
+Vivamus tellizzle neque, i saw beyonces tizzles and my pizzle went crizzle ut, pot t
+hings, vulputate bizzle, ma nizzle. We gonna chung purizzle funky fresh, bibendizzle 
+sizzle amizzle, shut the shizzle up vehicula, dope malesuada, arcu. Aenean eget fo 
+shizzle own yo' est own yo' ass. Donec quam. I'm in the shizzle ligula urna, break it d
+own phat, scelerisque fo shizzle, sodalizzle nec, uhuh ... yih!. Go to hizzle gravida.
